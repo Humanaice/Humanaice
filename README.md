@@ -29,7 +29,7 @@
 
 ## 📫 Como me encontrar:
 
-- LinkedIn: [linkedin.com/in/matheusnsantana](https://www.linkedin.com/in/matheusnsantana)
+- LinkedIn: [linkedin.com/in/mnsantana](www.linkedin.com/in/mnsantana)
 - E-mail: matheusnsantana@gmail.com  
 
 ---
